@@ -1,0 +1,1 @@
+// as a lib : ik file m code dusre mei usko use 
